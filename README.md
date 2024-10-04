@@ -13,7 +13,7 @@ Welcome to my GitHub profile! I'm passionate about exploring the intersections o
 
 ## 📫 Get in Touch
 
-Feel free to connect with me via [LinkedIn](https://www.linkedin.com/in/yourprofile).
+Feel free to connect with me via [LinkedIn](https://www.linkedin.com/in/balaji-udayasuriyan-294495185/).
 
 ---
 
